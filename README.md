@@ -8,4 +8,4 @@
 
 🌱 Always hungry for new challenges and adventures, I'm on a never-ending quest for knowledge and creativity in this crazy, ever-evolving indie game universe.
 
-💡 Got a wild idea brewing or itching to collaborate on something epic? Let's make magic happen! Swing by [my itch.io profile](https://fierceface.itch.io/) to check out my latest shenanigans, or drop me a line at [your_email@example.com](mailto:alfin.prasetya24@gmail.com).
+💡 Got a wild idea brewing or itching to collaborate on something epic? Let's make magic happen! Swing by [FierceFace.itch.io](https://fierceface.itch.io/) to check out my latest shenanigans, or drop me a line at [alfin.prasetya24@gmail.com](mailto:alfin.prasetya24@gmail.com).
